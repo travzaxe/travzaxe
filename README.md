@@ -5,7 +5,7 @@
 <p align="center">c  +  h always welcome / encouraged, i dont mind ships as long as it's legal</p>
 <p align="center">if i am sat with someone problematic or troublesome please lmk !!</p>
 
-<p align="center">heads up, im usually offtab or idle. w2i to make sure i dont miss your whisper, i read them all eventually !!</p>
+<p align="center">heads up, im usually offtab or idle. w2i to make sure i dont miss what you're saying to me, i read them all eventually !!</p>
 
 <p align="center">
   <img src="https://github.com/travzaxe/travzaxe/blob/main/tumblr_3b6969f630c007a4a322f003ab17f476_4e10e80c_500.webp?raw=true"/>
