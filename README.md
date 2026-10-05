@@ -36,7 +36,8 @@
 <p align="center">- roblox media (dandys world, fisch, guts & blackpowder, roblox webseries / args / horror series, nullscape, regretevator, etc)</p>
 <p align="center">- minecraft media (unstable universe / lifesteal smp, minecraft youtubers in general, args / horror series, etc)</p>
 <p align="center">- animation vs minecraft / animator</p>
-<p align="center">- and other stuff such as tf2, madness combat, hlvrai, pokemon media, south park, tadc, countryhumans, hetalia, rdr2, fruitger aero family aesthetics, jumpstyle, etc (list would be too long if i named everything ...)</p>
+<p align="center">- and other stuff such as tf2, madness combat, hlvrai, pokemon media, south park, tadc, countryhumans, hetalia, rdr2, frutiger aero family aesthetics, jumpstyle, etc (list would be too long if i named everything ...)</p>
+<p align="center">IM NOOTTT A FRUTIGER LARPPP I WAS ALIVE DURING THE AESTHETICS i looooove over-exaggerated frutiger aero AND skeuomorphism and everything else so shhhhhh .......</p>
 
 
 <p align="center">
