@@ -15,7 +15,7 @@
 </p>
 <p align="center">byi ...</p>
 <p align="center">- i want absolutely nothing to do with proshippers or people who ship illegal things, if you ship such things please kindly dni</p>
-<p align="center">- i am an irl of travis rapid (tmirb), chance (forsaken) and ivan (bad things). i would prefer no "doubles", but i dont care as long as you dont talk about it near me. if you also want no "doubles", dont interact with me</p>
+<p align="center">- i am an irl of travis rapid (tmirb), chance (forsaken) and ivan (bad things). i would prefer no "doubles", but i dont care as long as you dont talk about it near me. if you also want no "doubles", dont interact with me... some of my fictionkins include astro (dw), 007n7 (roblox hacker, not forsaken), pest (regretevator), andrew2002 (mabtpias), shedletsky (roblox admin, not forsaken), the second coming (avm/ava), kyle broflovski (sp), canada (hetalia)</p>
 <p align="center">- i am a yumeshipper. my yumeships include king orange (avm), dyle timesly (dw), sprout seedly (dw), sniper (tf2), barry (g&b). i would heavily prefer no "doubles" but again i dont really care as long as you dont mention it / talk about it around me. i would prefer to not get blocked over these, so either just dni or let me know not to talk about them around you, thank you !!</p>
 <p align="center">- and for the countryhuman dwellers, DNI IF YOU COSPLAY OR SUPPORT THIRD R*ICH OH MY GOD i love reporting you guys</p>
 <p align="center">- also note i am SEVERELY mentally and physically unwell and completely medicated due to personal reasons, please iwec as i might randomly snap or have mood swings !!</p>
